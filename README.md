@@ -1,4 +1,4 @@
-# deeadesina04-alt-
+# deeadesina04-alt
 BREAK INTO TECH × DEE 💻🎀 Information Systems @ Texas A&amp;M Software Engineering • Data Analytics • UI/UX  Building cloud-ready, data-driven solutions. Projects | Leadership | Continuous Growth
 <h1 align="center">Hi, I'm Ayomide (Deborah) Adesina 💗</h1>
 <h3 align="center">Information Systems Student | Aspiring Software Engineer & Data Analyst</h3>
